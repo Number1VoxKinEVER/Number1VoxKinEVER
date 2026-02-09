@@ -9,7 +9,7 @@ Read strawpage/pronouns page for more info on dni and general info.
  Zodiac is Virgo, Mbti: ENTJ-T.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔. 
-Fav animal: Sharks. 
+Fav animal: Sharks/Tigers. 
 Bisexual and Bigender, strictly He/She or Vox.
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 Taken by Lulu/Alli! <3 
