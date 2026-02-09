@@ -6,7 +6,7 @@ TRUST US!
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/pronouns page for more info on dni and general info.
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-13 turning 14, read prns.cc for info about my age rank in watching hazbin. hate will be deleted/ignored if you send me any on straw, ata, or ponytown.
+ Zodiac is Veigo, Mbti: ENTJ-T.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔. 
 Fav animal: Sharks. 
