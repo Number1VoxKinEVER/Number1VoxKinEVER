@@ -21,4 +21,5 @@ IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that are
 DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship/Proship.
 
 "Wowww.. SUPERR scary! I see why they give you such a big hat-!" (for @whiskdrinker)
+
 ![image-alt](https://github.com/Number1VoxKinEVER/Number1VoxKinEVER/blob/e98db4238dd6146d96f0db299a508d81c3161178/IMG_0822.png)
