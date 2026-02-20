@@ -22,4 +22,4 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 
 "Wowww.. SUPERR scary! I see why they give you such a big hat-!" (for @whiskdrinker)
 
-![image-alt](https://github.com/Number1VoxKinEVER/Number1VoxKinEVER/blob/e98db4238dd6146d96f0db299a508d81c3161178/IMG_0822.png)
+![image-alt](https://github.com/Number1VoxKinEVER/Number1VoxKinEVER/blob/d83404edbc8f2709334d19c0b6b424ccccdc7aa7/IMG_0842.png)
