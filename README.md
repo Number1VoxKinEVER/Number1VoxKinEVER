@@ -1,7 +1,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 VOX/VEX. (preferred nickname: Vex.)
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-Agatha/vox/catnap kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
+Agatha/vox/catnap/vee kinnie, doubles dniuf pls. (Kin shifts can also happen!!)
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/pronouns page for more info on dni and general info.
