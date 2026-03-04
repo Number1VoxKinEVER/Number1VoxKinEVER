@@ -27,3 +27,5 @@ DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic
 ![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/76f6eeecf81ad253d463665bc537d4fb5fb82f73/IMG_0910.png)
 
 ![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=GardenView)
+
+![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/6d1db31c97905db636ea7c17994b4a4368e333c5/IMG_0914.jpeg)
