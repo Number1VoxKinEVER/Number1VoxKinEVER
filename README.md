@@ -27,7 +27,7 @@ Be mindful i DO ship mirrorvision (glisten x vee) and shellvision (shelly x vee)
 ![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/8b70916fdb07f79e0bdc8776ef566cfde33489ae/IMG_0913.gif)
 
 
-![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=GardenView)
+![](https://komarev.com/ghpvc/?username=Number1VoxKinEVER&label=Contestants)
 
 ![image-alt](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/7fc3c8afa509cb74affbc070864803c2fb076314/IMG_0918.gif)
 
