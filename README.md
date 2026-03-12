@@ -20,7 +20,7 @@ INT: Dinosaur fans, Greek mythology, Staticmoth, Emilute, Agatha All Along Fans,
 IWEC: Radiosilence, Hellaverse Fandom, Any Alastor ships, Any Vox ships that arent staticmoth (staticbelle for example.) Forsaken Fandom, Dandys world fandom.
 DNI: People i CLEARLY dont like. (Phil, Kai, Mitchell, Kade, Xena.), Radiostatic, Guitarspear, Any Darkship/Proship, Spawnism. 
 
-"Wowww.. SUPERR scary! I see why they give you such a big hat-!" (for @whiskdrinker)
+"I'll destroy the patent, that town, and everything in it. And a DIRTBAG fox, and a DUMB bunny will NEVER stand in my way!"
 
 Big fan of zootopia!! Fans int please ^_^!!
 
