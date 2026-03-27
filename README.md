@@ -1,2 +1,4 @@
 
-![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/701f61c5f2c00a14b8558c6d112e5534bfe34432/IMG_1111_10520x5880.png)
+![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/26b9a2ce8893c8e2f8120bcebbf0b5770ff27663/IMG_1136.webp)
+
+DNI if you assume im a weirdo like the fandom.
