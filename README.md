@@ -1,5 +1,2 @@
 
 ![](https://github.com/W1TCHK1LL3R/W1TCHK1LL3R/blob/701f61c5f2c00a14b8558c6d112e5534bfe34432/IMG_1111_10520x5880.png)
-
-
-ᴬⁿᵈ ᴵ ᵇᵉᵍᵃⁿ ᵗᵒ ᴴᴬᵀᴱ.
